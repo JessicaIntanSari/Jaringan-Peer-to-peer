@@ -1,2 +1,2 @@
 # Jaringan-Peer-to-peer
-![17282444165451478052425979974200](https://github.com/user-attachments/assets/8983a75f-8910-4614-a59d-cdff95bcf2be)
+![17282451773249078377688484905377](https://github.com/user-attachments/assets/02ec02dd-7e41-4619-b276-52abcacbf326)
